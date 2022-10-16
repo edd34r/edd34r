@@ -16,7 +16,8 @@ Mi discord: eddpapu#5091
 El porteador de pibes: 
 Yo los porteo pibes
 
-![pene] (https://raw.githubusercontent.com/edd34r/papu-edd-stats/main/chadow.jpeg
+ 
+![pene](https://raw.githubusercontent.com/edd34r/papu-edd-stats/main/chadow.jpeg
 
 
 ALGUIEN ESTA LEEYENDO ESTO????!?? WTF

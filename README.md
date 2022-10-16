@@ -6,6 +6,8 @@ and some things in pyhton
 
 15-años xDXdXD
 
+Youtube: [edd34r](https://youtube.com/c/Edd34rUWU)
+
 Mexicano- 🐒💀
 
 Mi discord: eddpapu#5091

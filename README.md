@@ -16,7 +16,7 @@ Mi discord: eddpapu#5091
 El porteador de pibes: 
 Yo los porteo pibes
 
-
+![Bruj](chadow.jpg)
 
 
 ALGUIEN ESTA LEEYENDO ESTO????!?? WTF

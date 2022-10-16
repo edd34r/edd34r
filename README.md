@@ -6,7 +6,7 @@ and some things in pyhton
 
 15-años xDXdXD
 
-Youtube: [edd34r](https://youtube.com/c/Edd34rUWU)
+YT: [edd34r](https://youtube.com/c/Edd34rUWU)
 
 Mexicano- 🐒💀
 
